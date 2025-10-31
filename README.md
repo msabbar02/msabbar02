@@ -1,4 +1,4 @@
-# 👋 ¡Hola, soy @msabbar02!
+# 👋 ¡Hola, soy Mohamed Sabbar!
 
 ## 🚀 Sobre mí
 
